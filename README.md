@@ -1,2 +1,2 @@
 # pruebas
-paginas de pruebas
+paginas de pruebas las imagenes no tengo derechos de autor
